@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @Acegirl780432
 - 👀 I’m interested in art
 - 🌱 I’m currently learning all subjects
-- 💞️ I’m looking to collaborate on ...
-
 - 😄 Pronouns: she/her/her's
 - ⚡ Fun fact: I have 4 cats
 
